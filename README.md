@@ -79,7 +79,8 @@ Prioritise funding for countries with high patient-to-staff ratios.
 
 Develop predictive analytics for disease outbreaks.
 
-Contact
+## Contact
+
 [Email](egbeinnocent634@gmail.com)
 
 [LinkedIn](www.linkedin.com/in/innocent-egbe-016a1015a)
